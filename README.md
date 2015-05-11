@@ -5,6 +5,7 @@
 ![1](https://github.com/01100044093/myallpitch/blob/master/5.gif)
 ![1](https://github.com/01100044093/myallpitch/blob/master/6.gif)
 ![1](https://github.com/01100044093/myallpitch/blob/master/7.gif)
+![1](https://github.com/01100044093/myallpitch/blob/master/8.gif)
 ![1](https://github.com/01100044093/myallpitch/blob/master/MI_20141030_153616.png)
 ![1](https://github.com/01100044093/myallpitch/blob/master/MI_20141030_153635.png)
 ![1](https://github.com/01100044093/myallpitch/blob/master/QQ%E6%88%AA%E5%9B%BE20140801140456.png)
